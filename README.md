@@ -6,7 +6,7 @@
 
 
 
-## I'm a Student, Son, Developer, and Entrepreneur!!
+## I'm a Student, Developer, and Entrepreneur!!
 
 
 - 🌱 I’m currently learning everything 🤣
